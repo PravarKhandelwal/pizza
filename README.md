@@ -1,0 +1,1 @@
+Pizza is an italian dish. It is based with circular wheat dough topped with tomatoes , onions , mushrooms etc.
